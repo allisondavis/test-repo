@@ -11,3 +11,4 @@ Preferably with a double oven.
 ### **Choose reasonable times**
 Can't actually do the time frame in TV show, so agree on reasonable time frames.
 Can't be too long because people get satiated.
+Don't need two different stoves, can just have half. May be crowded, but no one has two stoves.
